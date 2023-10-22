@@ -1,4 +1,0 @@
-# namecheapsus.github.io
-
-
-test
